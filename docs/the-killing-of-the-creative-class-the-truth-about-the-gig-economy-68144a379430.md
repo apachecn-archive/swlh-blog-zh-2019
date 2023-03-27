@@ -1,0 +1,9 @@
+# 自由职业经济的真相
+
+> 原文：<https://medium.com/swlh/the-killing-of-the-creative-class-the-truth-about-the-gig-economy-68144a379430>
+
+![](img/644d301e714b165bef929e45ebd42079.png)
+
+伊莱扎·罗梅罗
+
+回到 2017 年 6 月，我写了一篇名为“[零工经济的利与弊](http://i%20wrote%20a%20blog%20post%20about%20the%20pros%20and%20cons%20of%20the%20gig%20economy%20back%20in%20june%20and%20that%20i%20had%20high%20hopes%20for%20it%20but%20we%20need%20specific%20government%20measures%20in%20place%20in%20order%20for%20it%20to%20thrive.%20in%20theory%2C%20gigging%2C%20sounds%20great%20to%20independent%20contractors%20who%20want%20to%20do%20what%20they%20love%20for%20a%20living.%20freelancers%20can%20come%20in%20for%20their%20designated%20assignment%20and%20then%20leave%20when%20it%27s%20finished.%20ideally%2C%20they%27re%20leaving%20for%20their%20next%20well-paying%20short%20term%20gig.%20but%20when%20you%20dig%20deeper%2C%20the%20reason%20the%20gig%20economy%20even%20exists%20is%20pretty%20grim.%20you%20know%2C%20the%20lack%20of%20being%20able%20to%20find%20stable%20employment%2C%20mass%20layoffs%20everywhere%20and%20how%20hard%20it%20is%20for%20the%20average%20person%20to%20make%20a%20decent%20living%20wage.%20when%20i%20wrote%20the%20blog%20post%2C%20i%20was%20enthusiastic%20but%20very%20skeptical%20about%20the%20freelancing%20economy%20and%20the%20future%20of%20creative%20professionals%20and%20i%20don%27t%20feel%20the%20same%20way%20anymore.%20i%20think%20that%20optimism%2C%20in%20retrospect%2C%20was%20a%20bit%20naive%20on%20my%20part./)”的博客文章，其中我谈到了我对自由职业者经济的厚望。尽管我说我们需要具体的政府措施来促进它的发展，我还是非常热情。理论上，“打零工”或“自由职业”对渴望自由、想做什么就做什么的独立合同工和创意人员来说听起来很棒
